@@ -1,0 +1,1 @@
+# Lasanha### Ingredientes1 Massa de lasanha (pronta)500 gramsDe presunto500 gramsDe queijo mussarela500 gramsCarne moida1 Massa de tomate prontaadd Sal (a gosto)add Gosto (pimenta-do-reino)add Oregano (a gosto)
